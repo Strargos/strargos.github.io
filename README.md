@@ -1,1 +1,0 @@
-# strargos.github.io
